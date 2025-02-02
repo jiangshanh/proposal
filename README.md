@@ -1,2 +1,2 @@
 # proposal
-Proposal June 2025
+Proposal TBD
